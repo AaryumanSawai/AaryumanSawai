@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Data structures and algorithms**
 
-- 📫 How to reach me **112001002@smail.iitpkd.ac.in**
+- 📫 How to reach me **aaryumansawai2001@gmail.com**
 
 - ⚡ Fun fact **I am funny.**
 
